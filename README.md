@@ -1,7 +1,7 @@
 # skid-list
 # Note: to see a better version of this click "Raw" on github of this page.
 
-Participates - Backdoor his HCRealm fork and gives it to people and skids from leak cores.
+Participates/Emirate - Backdoor his HCRealm fork and gives it to people and skids from leak cores.
 
 Backdoor Proof - http://prntscr.com/nw9w3u
 Leak Version - http://prntscr.com/nw9web
