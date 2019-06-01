@@ -1,4 +1,5 @@
 # skid-list
+# Note: to see a better version of this click "Raw" on github of this page.
 
 Participates - Backdoor his HCRealm fork and gives it to people and skids from leak cores.
 
