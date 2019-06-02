@@ -9,9 +9,6 @@ Leak Version v2 - http://prntscr.com/nw9wil
 His Version - http://prntscr.com/nw9wne 
 Leak Version v2 - http://prntscr.com/nw9wth
 
-Disclearing - Can't convert projects to maven when it's easy asf and has to get people to do it for him.
-Proof - http://prntscr.com/nw9x58
-
 Dalton - Claims he can code but very fishy about him. Couldn't convert a Hub plugin and ask me to do it. He didn't know that for main class you put the packages name and then the main class example me.inspectmc.hub.Hub
 
 Proof of main - http://prntscr.com/nw9y7y
