@@ -26,7 +26,7 @@ Skid Proof v2 - http://prntscr.com/nwa2rc
 Skid Proof v3 - http://prntscr.com/nwa3q5
 Skid Proov v4 - http://prntscr.com/nwa43k (Oh look the gif he sent me <3)
 
-Real/Rainnny - Skidding HCRiots StaffMode 
+Rainnny - Skidding HCRiots StaffMode 
 Skidding proof: http://prntscr.com/nwa4yv | Actual Plugin - http://prntscr.com/nwa5ej
 
 Harmful/MythSpeed - Claims hes a can code over and over.
