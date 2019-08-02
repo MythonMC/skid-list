@@ -36,4 +36,6 @@ Me Showing a his skid version vs the fork normal version - http://prntscr.com/nw
 Skid Proof v2 - http://prntscr.com/nwa6r4
 I patch my issues with him and good friends with him but no hate or anything towards them like I said its just my opinion.
 
+ZelfyYT - Skidded HCRealms an added Rhion-HCF shit in it and claims he owns Rhino HCF http://prntscr.com/on9r08
+
 # If anyone on here wants to be removed from the skid list you can dm me personally @Inspect on telegram on Discord which is Inspect#7811
